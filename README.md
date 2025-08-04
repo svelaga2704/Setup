@@ -5,4 +5,4 @@ Thank you and enjoy the setup process
 
 Have a good day and wonderful week
 
-wssup buddy
+wssup buddy this is not an easy task. it takes time no worries you can do it
