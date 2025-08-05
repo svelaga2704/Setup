@@ -8,3 +8,5 @@ Have a good day and wonderful week
 wssup buddy this is not an easy task. it takes time no worries you can do it
 
 lets try it again
+
+Good Morning howa your setup journey is it working? let me know
